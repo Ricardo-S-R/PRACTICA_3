@@ -1,3 +1,10 @@
+[video_ejercicio_14.zip](https://github.com/user-attachments/files/34163946/video_ejercicio_14.zip)
+
+
+
+
+https://github.com/user-attachments/assets/e8a447fb-ceb2-4a76-bfbe-bcd57b49b1e7
+
 [Ejercicio_8_P3.zip](https://github.com/user-attachments/files/34163878/Ejercicio_8_P3.zip)
 [Ejercicio_7_P3.zip](https://github.com/user-attachments/files/34163870/Ejercicio_7_P3.zip)
 [Ejercicio_6_P3.zip](https://github.com/user-attachments/files/34163861/Ejercicio_6_P3.zip)
